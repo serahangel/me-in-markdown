@@ -10,7 +10,7 @@ I am an active volunteer at Chatsworth library. I really enjoy working and helpi
 
 ## My Playlist
 
-[This is my spotify playlist! ]()
+[This is my spotify playlist! ](https://open.spotify.com/playlist/4PVFgu9Lb8lOJOujDgyOVi?si=b4b90fcd83d44b1c&pt=0c668fa668a6d8867d2b53f7e8169d91)
 
 ## Collage/Moodboard
 
